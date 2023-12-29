@@ -1,2 +1,1 @@
-# kak-killer-vip
-id activ
+5<>0<>1<>m<>o<>b<>i<>l<>e
